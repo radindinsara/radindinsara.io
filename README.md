@@ -1,2 +1,2 @@
-#Link my GitHub Digital CV: 
+Link my GitHub Digital CV: 
         https://radindinsara.github.io/radindinsara.io/
